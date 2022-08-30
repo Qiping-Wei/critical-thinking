@@ -1,3 +1,5 @@
+#### [Thinking Skills--Critical Thinking and Problem Solving](https://fitk.iainambon.ac.id/tadrisipa/wp-content/uploads/sites/6/2020/10/Cambridge-Thinking-Skills-Critical-Thinking-and-Problem-Solving.pdf)
+
 http://www.criticalthinking.org <br>
 The Foundation for Critical Thinking maintains an extensive website regarding critical 
 thinking and related scholarship.
